@@ -114,7 +114,7 @@ The developers regularly update Arceus X to ensure compatibility with the latest
 Final Thoughts
 Arceus X is a game-changer for Roblox enthusiasts, offering tools to enhance creativity and gameplay. From its script executor to its intuitive mod menu, it unlocks possibilities that are impossible in the standard game. Best of all, it’s free to download and use, making it accessible to all players.
 
-However, with great power comes great responsibility. Use Arceus X ethically and prioritize safety by downloading it from trusted sources like https://caapcutapk.com/. Whether you’re a developer experimenting with scripts or a player looking to spice up your gameplay, Arceus X is a tool worth exploring. Download it today and take your Roblox experience to the next level!
+However, with great power comes great responsibility. Use Arceus X ethically and prioritize safety by downloading it from trusted sources like https://arceusx.app/ . Whether you’re a developer experimenting with scripts or a player looking to spice up your gameplay, Arceus X is a tool worth exploring. Download it today and take your Roblox experience to the next level!
 
 
 
